@@ -11,3 +11,13 @@ Legal Consequences: While not common, some game developers may take legal action
 Security Risks: Using hacks can expose players to security risks such as malware or viruses that may compromise their personal information or device.
 
 It's important to consider these risks before using hacks for in-game currency to avoid potential negative consequences.
+
+
+
+
+If you are still going to apply the hacks the steps are simple:
+create a bookmark at the top of you google page.
+call it a approprate name, paste the code into the link.
+click the bookmark while the account is being used and their you go, free gold!
+
+If you want to Donate- https://streamlabs.com/nyvepicoz1/tip 
